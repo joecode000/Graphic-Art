@@ -1,4 +1,5 @@
-# Graphic-Art
+# Graphic and Interactive Design 
+( https://catalog.foothill.edu/degrees-certificates/graphic-interactive-design/ )
 
 
 Sp20 GID F033 GRAPHIC DESIGN STUDIO I 01W Brown 41733 (GID 33: GRAPHIC DESIGN STUDIO I < Foothill College)
