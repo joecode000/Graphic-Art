@@ -1,4 +1,6 @@
 # Graphic and Interactive Design 
+
+Objectives & Content:
 ( https://catalog.foothill.edu/degrees-certificates/graphic-interactive-design/ )
 
 
